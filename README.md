@@ -35,11 +35,142 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A common apologie of the Church of England against the vniust challenges of the ouer-iust sect, comm
+
+1. TO OVR GRATIOVS
+AND BLESsed
+Mother, the Church of
+ENGLAND.
+THE MEANEST OF HER
+Children Dedicates this her Apology,
+and wisheth all Peace and Happines.
+
 #####Body#####
-A common apologie of the Church of England against the vniust challenges of the ouer-iust sect, comm
+
+1. SECTION. I.
+
+1. SECTION. II.
+
+1. SECTION. III▪
+
+1. SECTION. IIII.
+
+1. SECTION. V.
+
+1. SECTION. VI.
+
+1. SECTION. VII.
+
+1. SECTION. VIII.
+
+1. SECTION. IX.
+
+1. SECTION. X.
+
+1. SECTION. XI.
+
+1. SECTION. XII.
+
+1. SECTION. XIII.
+
+1. SECTION. XIIII.
+
+1. SECTION. XV.
+
+1. SECTION. XVI.
+
+1. SECTION. XVII.
+
+1. SECTION. XVIII.
+
+1. SECTION. XIX.
+
+1. SECTION. XX.
+
+1. SECTION. XXI.
+
+1. SECTION. XXII.
+
+1. SECTION. XXIII.
+
+1. SECTION. XXIIII
+
+1. SECTION. XXV.
+
+1. SECTION. XXVI.
+
+1. SECTION. XXVII.
+
+1. SECTION. XXVIII.
+
+1. SECTION. XXIX.
+
+1. SECTION. XXX.
+
+1. SECTION. XXXI.
+
+1. SECTION. XXXII.
+
+1. SECTION. XXXIII.
+
+1. SECTION. XXXIIII.
+
+1. SECTION. XXXV.
+
+1. SECTION. XXXVI.
+
+1. SECTION. XXXVII.
+
+1. SECTION. XXXVIII.
+
+1. SECTION. XXXIX.
+
+1. SECTION. XL.
+
+1. SECTION. XLI.
+
+1. SECTION. XLII.
+
+1. SECTION. XLIII.
+
+1. SECTION. XLIIII.
+
+1. SECTION. XLV.
+
+1. SECTION. XLVI.
+
+1. SECTION. XLVII.
+
+1. SECTION. XLVIII.
+
+1. SECTION. XLIX.
+
+1. SECTION. L.
+
+1. SECTION. LI.
+
+1. SECTION. LII.
+
+1. SECTION. LIII.
+
+1. SECTION. LIIII.
+
+1. SECTION. LV.
+
+1. SECTION. LVI.
+
+1. SECTION. LVII.
+
+1. SECTION. LVIII.
+
+1. SECTION. LIX.
+
 #####Back#####
-A common apologie of the Church of England against the vniust challenges of the ouer-iust sect, comm
+
+1. A Table of all the Sections contained
+in this Booke.
+
+1. Errata.
+
 **Types of content**
 
   * Oh, Mr. Jourdain, there is **prose** in there!
